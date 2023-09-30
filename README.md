@@ -1,2 +1,3 @@
 # JAVA8
-Java8 For windows and Linux
+Thank you for downloading. 
+Please visit for more updates t.me/l3mon2024
